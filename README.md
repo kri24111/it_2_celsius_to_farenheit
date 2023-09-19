@@ -2,3 +2,4 @@
 
 
 wow
+OPPGAVE 5 blandede oppgaver 1B
